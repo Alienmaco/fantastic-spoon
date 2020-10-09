@@ -1,0 +1,2 @@
+# its always sad hours
+especially when you remember the fact that you ate the same exact breakfast sandwich everyday for months because you didn't want to try anything else since consistency is safe and anything else could expose you to disappointment but then you got tired of the breakfast sandwich because it tasted like sad sausage and you had nothing else to turn to except the nothingness of the vacant space the breakfast sandwich left in your soul
