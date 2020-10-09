@@ -1,3 +1,4 @@
+~~~~
 <!DOCTYPE html>
 <html lang="en">
   <head>
@@ -13,3 +14,5 @@
     </section>
   </body>
 </html>
+~~~~
+![bag of cheetos](img/Cheetos.jpg "Delichos Cheetos")
